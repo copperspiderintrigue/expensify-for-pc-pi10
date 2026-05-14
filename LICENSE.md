@@ -1,4 +1,4 @@
-# 
+# Expensify for PC | Expensify for Windows elite Plugin: multi-currency-support & project-accounting offers the most advanced Expensify for PC | Expensify for Windows plugin, with
 
 
 
